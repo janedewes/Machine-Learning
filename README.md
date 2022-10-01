@@ -1,1 +1,1 @@
-![MACHINE LEARNING Applications (1)](https://user-images.githubusercontent.com/42004781/117876130-60d08f80-b279-11eb-8696-9c5a9d45a265.jpg)
+
